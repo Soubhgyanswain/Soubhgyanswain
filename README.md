@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Soubhgyanswain
-- 👀 I’m interested in Gaming, doing creative things in adavance manner
+- 👀 I’m interested in Gaming, doing creative things in advance manner
 - 🌱 I’m currently learning python, AI, ML
 - 💞️ I’m looking for collaborating with big firms ...
 - 📫 How to reach me through soubhagyaswain719@gmail.com
